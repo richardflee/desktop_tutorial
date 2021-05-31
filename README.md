@@ -5,5 +5,5 @@
  therefore sometimes we are. 
  Or not.
  
- Or then again maybe we are. Or were.
+Or were.
  
